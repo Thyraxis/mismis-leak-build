@@ -14,3 +14,6 @@ he actually sent furry porn
 
 ![image](https://github.com/Thyraxis/mismis-leak-build-compiled/assets/132177323/20764714-3e37-463d-86cd-e3dcb86bd4fc)
 he sent an aftbooru link which im not gonna show
+
+![image](https://github.com/Thyraxis/mismis-leak-build-compiled/assets/132177323/1e674686-3894-434a-be20-f734b026dc41)
+he blocked me l0l0l0l
