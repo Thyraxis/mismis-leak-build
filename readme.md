@@ -1,1 +1,1 @@
-since i got blocked might well i leak it + ratted (more info in folders)
+since i got blocked might well leak it and prob its ratted asf (more info in folders)
